@@ -1,7 +1,5 @@
 # HV-AI-Terms-Of-Use
 
-# HV-AI-Terms-Of-Use
-
 TERMS OF USE
 Last updated
 AGREEMENT TO OUR LEGAL TERMS
